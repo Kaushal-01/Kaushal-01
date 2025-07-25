@@ -27,7 +27,7 @@ I’m passionate about **Deep Learning & Artificial Intelligence** and their pot
 
 ## 📫 Connect with Me  
 - **GitHub:** [Kaushal-01](https://github.com/Kaushal-01)  
-- **LinkedIn:** *Coming soon*  
+- **LinkedIn:** [Kaushal K](https://www.linkedin.com/in/kaushal-k-35a02b2b8/)  
 - **Portfolio:** *Coming soon*  
 
 🚀 **I pursue what I am passionate about and get better at it!**  
